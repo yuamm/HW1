@@ -1,2 +1,0 @@
-Yuan Wang
-Chicago Cubs
